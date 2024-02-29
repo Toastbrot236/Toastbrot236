@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on potassium
 - 📫 How to reach me: https://youtu.be/5T5BY1j2MkE
 
-Toastbrot236/Toastbrot236 is a ✨ specil ✨ repository because its `READMY.md` (this file) appears on your GitGud profile.
+Toastbrot236/Toastbrot236 is a ✨ specil ✨ repository because its `EBOOT.BIN` (this falafel) appears on your GitGud profile.
 
 Also your bathroom stinks lol
