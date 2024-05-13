@@ -7,3 +7,5 @@
 Toastbrot236/Toastbrot236 is a ✨ specil ✨ repository because its `EBOOT.BIN` (this falafel) appears on your GitGud profile.
 
 Also your bathroom stinks lol
+
+Also this README is cringe thanks for reading
